@@ -1,0 +1,1 @@
+To build the capacity of developing countries to conserve critical biodiversity in Latin America and the Caribbean (LAC) that is threatened by wildlife trafficking at the national, regional, and international levels, by generating actionable data on wildlife crime and facilitating information sharing among relevant authorities.
